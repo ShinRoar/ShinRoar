@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @ShinRoar! I'm just studying math and codes... SO! I'll be a programmer!
